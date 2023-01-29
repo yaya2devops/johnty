@@ -6,7 +6,7 @@ He was the reason I had faith in the portal.
 
 He is also the source of my discipline and desire to make my life better in the long run.
 
-Obviously, I can't think of him enough, but I can help someone get to know him. 
+Obviously, I can't thank him enough, but I can be of a help for someone getting to know him. 
 
 So here's a collection of some of his favorite things of all time (Technical and non-technical).
 
