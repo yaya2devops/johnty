@@ -4,7 +4,7 @@ He was one of the reasons I never missed a workout.
 
 He was the reason I had faith in the portal.
 
-He is also the source of my discipline and desire to make my life better in the long run.
+He was also one the great source of my discipline and desire to make my life better in the long run.
 
 Obviously, I can't thank him enough, but I can be of a help for someone getting to know him. 
 
