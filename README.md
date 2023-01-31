@@ -1,6 +1,6 @@
 John had a significant impact on my career and who I am today. 
 
-He was one of the reasons I never missed a workout. 
+He was one of the reasons I never missed a workout. Mostly.
 
 He was the reason I had faith in the portal.
 
